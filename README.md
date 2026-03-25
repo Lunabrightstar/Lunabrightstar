@@ -7,5 +7,14 @@ Eddie Munson from Stranger Things, King Dice from Cuphead and Bill Cipher from G
 I have a LOT of OCs (most of them are OC x cannon OCs <3) so here's some of my favorites: Trixie (FNAF security breach OC, shipped with Monty), Twilight (Cuphead OC, shipped with King Dice) my Stranger Things OC (shipped with Eddie) (art of my FNAF security breach OC is by @Binxiebooclaw on YouTube)
 ![Image](https://github.com/user-attachments/assets/6bbc4b29-f411-4ba9-b04b-babceaf47e12)
 
+Favorite characters: Pomni (The Amazing Digital Circus)
+Eddie munson (Stranger Things) Literally all the animatronics especially the Glamrock animatronics and Gregory (FNAF) King Dice (from Cuphead) Bill Cipher (Gravity Falls) 
+(Art of my Cuphead OC Twilight and King Dice by @Reecipuff) 
+
+![Image](https://github.com/user-attachments/assets/cc143e8b-a079-4109-be49-e19c1f27d61f)
+
+Thanks for letting me yap lol <3
+![Image](https://github.com/user-attachments/assets/a13128b9-1b04-4710-aad9-0d2130f88bf1)
+
 dni: basic dni, anti selfshipper.
 <img width="1068" height="683" alt="Image" src="https://github.com/user-attachments/assets/ec79a64f-1573-4f01-bd88-b8f16fbe4181" />
