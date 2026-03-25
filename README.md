@@ -16,5 +16,4 @@ Eddie munson (Stranger Things) Literally all the animatronics especially the Gla
 Thanks for letting me yap lol <3
 ![Image](https://github.com/user-attachments/assets/a13128b9-1b04-4710-aad9-0d2130f88bf1)
 
-dni: basic dni, anti selfshipper.
-<img width="1068" height="683" alt="Image" src="https://github.com/user-attachments/assets/ec79a64f-1573-4f01-bd88-b8f16fbe4181" />
+
