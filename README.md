@@ -6,7 +6,7 @@ Eddie Munson from Stranger Things, King Dice from Cuphead and Bill Cipher from G
 ![Image](https://github.com/user-attachments/assets/92475cb1-e127-499a-a72e-163492d3e785)
 
 Favorite characters: Pomni (The Amazing Digital Circus)
-Eddie munson (Stranger Things) Literally all the animatronics especially the Glamrock animatronics and Gregory (FNAF) King Dice (from Cuphead) Bill Cipher (Gravity Falls) 
+Eddie munson (Stranger Things) all the animatronics especially the Glamrock animatronics and Gregory (FNAF) King Dice (from Cuphead) Bill Cipher (Gravity Falls) 
 
 
 ![Image](https://github.com/user-attachments/assets/0b173cd4-e30a-4b8f-9b9b-3912b581aad6)
